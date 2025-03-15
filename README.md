@@ -1,9 +1,9 @@
-## Hi there 👋
 
 <!--
 **clairoshade/clairoshade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
+![thenotebook](https://github.com/user-attachments/assets/bcad2aa4-56a2-47d1-85de-5836da8807ad)
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
