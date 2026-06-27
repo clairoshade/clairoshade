@@ -1,4 +1,4 @@
-<p align="center"><img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/37615006-42ce-411c-9f96-1860dfd6c20a" />
+<p align="center"><img width="374" height="211" alt="Image" src="https://github.com/user-attachments/assets/f063735d-b341-4f10-8839-2549b948dc58" />
 
 <div align="center">
   <a href="https://beabadook.atabook.org/?page=1">ᴀᴛᴀʙᴏᴏᴋ</a> &nbsp;&nbsp;|&nbsp;&nbsp; 
