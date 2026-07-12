@@ -2,12 +2,19 @@
 
 <div align="center">
   <a href="https://beabadook.atabook.org/?page=1">ᴀᴛᴀʙᴏᴏᴋ</a> &nbsp;&nbsp;|&nbsp;&nbsp; 
-  <a href="https://riskitall.carrd.co">ᴄᴀʀʀᴅ</a> &nbsp;&nbsp;|&nbsp;&nbsp; 
-  <a href="https://pronouns.cc/@bea">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a>
+  <a href="https://riskitall.carrd.co">ᴄᴀʀʀᴅ</a> &nbsp;&nbsp;|&nbsp;&nbsp;
+  <a href="https://clairoshade.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> &nbsp;&nbsp;|&nbsp;&nbsp;
+  <a href="https://pronouns.cc/@bea">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a> &nbsp;&nbsp;|&nbsp;&nbsp;
 </div>
 
 
-<p align="center">𝘸2𝘪 || 𝘪𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 𝘫𝘴 𝘥𝘰𝘯𝘵 𝘣𝘦 𝘸𝘦𝘪𝘳𝘥
+
+
+
+
+
+<p align="center">𝘸2𝘪 + 𝘤*𝘩 𝘧𝘳𝘦𝘦𝘭𝘺
+
 
 
 
